@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on mu classmates
 - 📫 How to reach me elinekempe@live.nl
 - 😄 Pronouns: she/her
-- ⚡ Fun fact: I like working with other peole
+- ⚡ Fun fact: I like working with other people who are just as motivated as i am!
 
 <!---
 eline3001/eline3001 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
